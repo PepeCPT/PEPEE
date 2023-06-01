@@ -84,7 +84,7 @@ It's important to acknowledge that staking carries certain risks, such as the po
 Twitter: https://twitter.com/thepepecpt  
 Discord: https://discord.gg/wpGSA6PGch  
 Instagram: https://www.instagram.com/pepecpt/  
-Tiktok: https://www.tiktok.com/@pepecpt  
+TikTok: https://www.tiktok.com/@pepecpt  
 Youtube: https://www.youtube.com/@pepecpt  
 Reddit: https://www.reddit.com/user/PEPECPT  
 Medium: https://medium.com/@pepecpt  
