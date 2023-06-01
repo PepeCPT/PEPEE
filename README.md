@@ -85,7 +85,7 @@ Twitter: https://twitter.com/thepepecpt
 Discord: https://discord.gg/wpGSA6PGch  
 Instagram: https://www.instagram.com/pepecpt/  
 TikTok: https://www.tiktok.com/@pepecpt  
-Youtube: https://www.youtube.com/@pepecpt  
+YouTube: https://www.youtube.com/@pepecpt  
 Reddit: https://www.reddit.com/user/PEPECPT  
 Medium: https://medium.com/@pepecpt  
 
