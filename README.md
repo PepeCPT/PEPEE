@@ -51,7 +51,7 @@ ARB Airdrop Participants: If you hold an ARB airdrop wallet address, you automat
 Contribution Campaign Participants: Those who have joined the Pepe CPT community contribution campaign and have submitted their OG wallet address are eligible to receive the PEPEE airdrop. To ensure validity, the total value of USDT, ETH, BTC, and ARB held in the wallet must exceed $100, guarding against potential Sybil attacks.
 Pepe CPT Staking Pool Participants: Pepe CPT staking pool stakeholders are also eligible for the 1,000,000 PEPEE airdrop.
 Active Members of Pepee Pool: Active members of the Pepee Pool, our exciting portfolio-following platform, will also receive the airdrop of 1,000,000 PEPEE tokens.
-Claim your place in the PEPEE token ecosystem and seize the opportunity to be rewarded for your participation and support. Don't miss out on this chance to become an inte.
+Claim your place in the PEPEE token ecosystem and seize the opportunity to be rewarded for your participation and support. Don't miss out on this chance to become an integral part of our growing community. Stay tuned for the announcement of the airdrop claim date.
 
 ## CPT
 #### Tokenomics
